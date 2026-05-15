@@ -1,4 +1,4 @@
-# 
+# secure Polymarket Addon | decentralized-trading + prediction-market-scanning is the best Polymarket addon, featuring decentralized-trading and prediction-market-scanning. Smart,
 
 
 
